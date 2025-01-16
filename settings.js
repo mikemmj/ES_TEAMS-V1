@@ -27,7 +27,7 @@
 //Instagram: null
 //Telegram: t.me/examsolutionteam
 //GitHub: @paskito002
-//WhatsApp: +2348187637779
+//WhatsApp: +2348136994475
 //want more free bot scripts? subscribe to my youtube channel: https://youtube.com/@esteams
 //   * Created By Github: ES TEAMS
 //   * Credit To ES TEAMS TECH
